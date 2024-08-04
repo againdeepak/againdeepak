@@ -1,6 +1,6 @@
 ![againdeepak](https://github.com/againdeepak/againdeepak/assets/111180448/177f55b8-1378-4b5f-b49a-f00c485c4017)
 # 💫 About Me:
-My name is Deepak Kumar. I am a Student of B.Tech(CSE)' 2024 Batch.<br>Pursuing from IES College of Technology, Bhopal.<br>
+My name is Deepak Kumar. I am a Student of B.Tech(CSE)' 2024 Batch.<br> from IES College of Technology, Bhopal.<br>
 
 
 ## 🌐 Socials:
